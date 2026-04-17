@@ -24,4 +24,4 @@ Turning ideas into scalable, secure, and creative solutions. Passionate about bu
 ## 📫 Connect With Me
 - [LinkedIn](https://linkedin.com/in/priya)  
 - GitHub [(github.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fgithub.com%2Fnakatepriya525")  
-- 📧 Email: priya@example.com  
+- 📧 Email: nakatep35@gmail.com
